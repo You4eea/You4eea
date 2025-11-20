@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @You4eea
-- 👀 I’m interested in Blade Runner
 - 🌱 I’m currently learning. 
 - 💞️ I’m looking to collaborate on = 0
 - 📫 How to reach me = here
